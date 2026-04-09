@@ -4,6 +4,7 @@
 김주경
 
 안녕하세요. 저는 임상심리사를 꿈꾸고 있는 김주경입니다. 
+![임상심리사 사진](Gemini_Generated_Image_aq9nwsaq9nwsaq9n.png)
 
 ## 2. 이메일 주소
 mydream0102@naver.com
